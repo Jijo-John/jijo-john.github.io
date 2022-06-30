@@ -1,1 +1,1 @@
-# jijo.github.io
+# jijo-john.github.io
